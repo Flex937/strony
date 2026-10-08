@@ -1,3 +1,0 @@
---kupa dupa zalupa
---Polska Górom
---Jestem z gangu kukiriniarzy
